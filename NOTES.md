@@ -1,0 +1,4 @@
+# Notes
+
+## Rules
+- (azi completez)
